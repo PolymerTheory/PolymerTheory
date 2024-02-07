@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @PolymerTheory
 - 👀 I’m interested in physics/simulations.
-- 🌱 I’m currently learning a bunch of stuff.
 - 💞️ I’m looking to collaborate on anything that seems interesitng. Science good. 
 - 📫 How to reach me: polymertheory@gmail.com
 
